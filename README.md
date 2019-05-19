@@ -25,14 +25,18 @@ Follow on **Twitter**: https://www.twitter.com/teknikgg
 Follow on **Facebook**: https://www.facebook.com/teknikgg
 
 > Life has two rules
+
 > \#1 Never Give Up
+
 > \#2 Always Remember \#1
 
 
 
 
 ***Learn Something...***
+
 ***Happy Coding...***
+
 :smile:
 ## TekNik GG
 ![TekNik GG](https://leafiest-officer.000webhostapp.com/wp-content/uploads/2019/05/TekNik-GG-with-out-Transparent.png "TekNik GG")
